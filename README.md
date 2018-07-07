@@ -1,1 +1,1 @@
-# CSAMA
+# CSAMACSAMA 2018 - Brixen
